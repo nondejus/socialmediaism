@@ -1,1 +1,1 @@
-# socialmediaist
+# socialmediaism
