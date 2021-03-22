@@ -1,1 +1,3 @@
 # socialmediaism
+
+political, socialmedia, and economic philosophy encompassing a range of economic and socialmedia systems characterised by socialmedia ownership of the means of production
